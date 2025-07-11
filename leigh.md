@@ -1,2 +1,2 @@
 # leigh dynasty
-some discription!
+some discription! i am a king
